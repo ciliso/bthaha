@@ -1,7 +1,8 @@
 <h2>BTHaHa(BT哈哈)官方网站 - 免费磁力搜索工具最新网址|发布页</h2>
 <p>BtHaha（BT哈哈）是一个基于DHT协议的磁力链接搜索引擎，专注于为用户提供丰富的资源搜索服务。该网站通过爬虫机器人从DHT网络和全球各大BT分享网站获取资源链接，实时更新全网内容，涵盖电影、剧集、音乐、图书、软件、动漫、教程、图片、综艺、游戏等多种类型资源。用户可以浏览磁力链接内容，选择迅雷、百度网盘等工具下载所需资源，而无需直接缓存资源文件。</p>
 <p><strong>一键访问：</strong><a href="https://www.litxdh.com/sites/bthaha.html" target="_blank"><strong>BTHaHa最新网址</strong></a></p>
-<p><strong>一键访问：</strong><a href="https://pan.quark.cn/s/0db22432c259" target="_blank"><strong>⏬经典电影/无损音乐</strong></a></p>
+<p><strong>一键访问：</strong><a href="https://cilisousuodaohang.litxdh.com"><strong>磁力导航大全</strong></a></p>
+<p><strong>一键访问：</strong><a href="https://wangpanziyuan.pages.dev/"><strong>电子书/电影/音乐/漫画/游戏下载</strong></a></p>
 <p><strong>一键访问：</strong><a href="http://ip.harmonylink.net/share/e82025" target="_blank"><strong>海外代理网络·可看蓝光4K影视</strong></a></p>
 <p><strong>功能特点：</strong></p>
 <ol>
